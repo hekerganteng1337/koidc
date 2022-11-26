@@ -1,7 +1,6 @@
 <!doctype html>
 <html amp lang="id">
-    <head>
-    <meta http-equiv="refresh" content="1;url=https://livescience.tech/">    
+    <head>   
     <meta charset="utf-8">
     <meta name="viewport" content="width=device-width, initial-scale=1, shrink-to-fit=no" />
     <title>RDTOTO > Bandar Toto Togel Macau 4D Situs Togel 4D Terbesar</title>
